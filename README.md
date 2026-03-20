@@ -8,7 +8,7 @@ Squad de criação de conteúdo para o Instagram da **Dra. Leslye Sartori** (`@d
 
 - Médica pediatra, especialista em Transtorno do Espectro Autista (TEA) e Análise do Comportamento Aplicada (ABA)
 - Pós-graduanda em psiquiatria da infância
-- Escritora, palestrante e idealizadora do **Grupo Evolução e Neurodiversidade (GEN)** — clínica de terapias em Umuarama/PR
+- Escritora, palestrante e mãe
 - Instagram: [@draleslyesartori](https://www.instagram.com/draleslyesartori/)
 - Site: [draleslyesartori.com.br](https://draleslyesartori.com.br)
 
